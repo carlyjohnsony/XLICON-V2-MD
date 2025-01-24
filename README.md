@@ -1,5 +1,9 @@
-# `XLICON-V2-MD DEPLOY ON KOYEB✅ HIGHLY RECOMMENDED THANKS`
+# `XLICON-V2-MD DEPLOY ON KOYEB✅ HIGHLY RECOMMENDED THANKS `
 <br>
+
+# `NOTE : WE HATE BUGS AND THOSE STUFF WE ARE REALLY SERIOUS ABOUT IT THOSE OF YOU PUTTING VIRUS BUGS IN YOUR BOTS PLEASE STOP WE HATE IT A LOT`
+
+
 <br>
 
 #  ᴄᴏ ᴘᴏᴡᴇʀᴇᴅ ʙʏ `ＷＨＩＴＥ４４４ ? ?`
@@ -197,9 +201,9 @@ NOW Deploy👇
 - **Join Our Support Group:**
  <p align="center">
    
-  ## ``Support Group``
+  ## ``Support Channel``
    
-   [![WHATSAPP](https://img.shields.io/badge/Support%20Group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)]( https://chat.whatsapp.com/Lda5nx04JZJJsKsibu0KFR)
+   [![WHATSAPP](https://img.shields.io/badge/Support%20Channel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](  https://whatsapp.com/channel/0029VaMGgVL3WHTNkhzHik3c)
 
 <a aria-label="Join our chats" href="https://wa.me/923184070915?text=Hi!! SalmanAhmad Sir, I need Your Help" target="_blank">
     <img alt="whatsapp" src="https://img.shields.io/badge/Owner%20Whatsapp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
@@ -249,6 +253,7 @@ Misusing the bot may result in a ban from WhatsApp. Use at your own risk.
 - Not For Sale
 - Don't Forget to Give Credits If you are using or Reuploading My Plugins/files
 - Have A Good Day Ahead
+- Bot is for educational purpose and for learning not for spamming thank you
 - Don't Use This Script As Your Bot Base 
 ---
 
